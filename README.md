@@ -25,7 +25,7 @@
 
 🗿 [`PAIRING CODE`](https://bel-tah-codes-7huy.onrender.com/pair) 
 
-👻 [`SCAN QR`](https://bel-tah-codes-7huy.onrender.com/qr)
+👻 [`SCAN QR`](https://bel-tah-codes-7huy.onrender.com/wasiqr)
 
 ✅ [`BELTAH TECH SITE`](https://bel-tah-codes-7huy.onrender.com/)
 
